@@ -1,0 +1,1 @@
+We take good care of seniors who can not be left alone, whose family members are no longer or live in long distances and those who are looking to make the best of their retirement experiences. We assist them with ADL ( activities of daily living) , create and share enjoyable moments, support and love them. We are great companions and compationate health care workers  
